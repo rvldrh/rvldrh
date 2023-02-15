@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently study on Telkom high school Malang<br>👯 I’m looking to collaborate on software development<br>🌱 I’m currently learning programming language<br>💬 Ask me about programming <br>⚡ Fun fact - i like sport
+🔭 I’m currently study on SMK Telkom Malang<br>👯 I’m looking to collaborate on software development<br>🌱 I’m currently learning programming language<br>💬 Ask me about programming <br>⚡ Fun fact - i like sport
 
 
 ## 🌐 Socials:
