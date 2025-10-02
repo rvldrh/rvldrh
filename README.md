@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently study on SMK Telkom Malang<br>⚡ Fun fact - i like sport
+🔭 I’m currently study on Brawijaya University<br>⚡ Fun fact - i like sport
 
 
 ## 🌐 Socials:
